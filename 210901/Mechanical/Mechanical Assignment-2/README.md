@@ -1,1 +1,0 @@
-# Hull Design Research
